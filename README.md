@@ -1,1 +1,0 @@
-# STLD-Assignment-2
